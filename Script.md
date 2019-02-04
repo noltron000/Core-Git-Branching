@@ -24,7 +24,7 @@ They took a tentative step through the door and followed the stone path overgrow
 
 As George walked through the zoo, it seemingly expanded into a true jungle. Before he knew it, he was lost! But something was odd. The sky turned bright and colorful, and flowers bloomed before his eyes. Suddenly, a puff of colored smoke obscured his vision.
 
-From the fading mists, George met the Unicorn King. The Unicorn King granted him magic powers, and sent him away back to school with the zookeeper.
+From the fading mists, George met the Unicorn King. The Unicorn King granted him magic powers, and sent him away back to school with the zookeeper. The zookeeper became confused and lost, since he was originally from the jungle!
 
 The end.
 
